@@ -1,1 +1,1 @@
-Cool site stil needs work.
+Cool site, under construction. Thank you for your patience.
